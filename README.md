@@ -1,4 +1,4 @@
 # read !!
-HEY IM KENNETH !! i like nicknames
-he/him , mlm , trans
-INTTTT PLSSS
+# call me vic or ken :3
+# on pony town mosstly on weekends!!
+# pansexual + trans
