@@ -1,4 +1,2 @@
 # read !!
-# call me vic or ken :3
-# on pony town mosstly on weekends!!
-# pansexual + trans
+vic ou ken, < gabe 3 , bi trns asexual
